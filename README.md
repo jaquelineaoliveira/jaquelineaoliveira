@@ -1,4 +1,4 @@
-##  Olá! Eu sou a Jaque
+##  Olá! Eu sou a Jaque 😊
 
 
 🧑‍💻 Formada Análise e Desenvolvimento de Sistemas
