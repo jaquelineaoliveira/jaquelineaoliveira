@@ -1,7 +1,7 @@
-##  Olá! Eu sou a Jaque 😊
+##  Olá! Eu sou a Jaque🌺
 
 
-🧑‍💻 Formada Análise e Desenvolvimento de Sistemas
+🧑‍💻 Formada em Análise e Desenvolvimento de Sistemas
 
 🚀 QA - CTFL, CTFL-AT e CTFL-MAT
 
